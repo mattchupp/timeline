@@ -1,4 +1,4 @@
-Matt Chupp’s life
+Matt Chupp’s Life
 ===============
 
 - 07/12/1994 Born!
@@ -8,3 +8,5 @@ Matt Chupp’s life
 - 26/05/2013 Graduated High School
 - 28/08/2013 Started College
 - 2013-2017 College
+- 05/2014-08/2014 Summer Internship @ The Vineyard Church 
+- 05/2015-08/2015 Summer Internship @ Elevation Church 
