@@ -3,6 +3,7 @@ Matt Chupp’s Life
 
 - 07/12/1994 Born!
 - 2000-2006 Elementary School
+- ~2004 Started Playing Guitar
 - 2006-2009 Middle School 
 - 2009-2013 High School 
 - 26/05/2013 Graduated High School
